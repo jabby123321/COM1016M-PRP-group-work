@@ -9,7 +9,7 @@
 - Charlie Newman
 - Jenson Dixon
 - Adrian Hatfield
-- Jenson Dixon
+- Katelyn Alcock
 
 ## Introduction
 
